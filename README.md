@@ -6,5 +6,5 @@ Vacg成立于2022/11/27，专收集18岁信息虚拟物。
 ▪telegram群：无<br>
 ▪负责人：账号已注销<br>
 <br>
-点击以下内容跳转指定地址
+点击以下内容跳转指定地址<br>
 <a href="https://github.com/hehongwei7003/Vacg/tree/main/%F0%9F%94%9E%F0%9F%88%B2%E6%B8%B8%E6%88%8F">🔞🈲游戏</a>
